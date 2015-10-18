@@ -1,5 +1,5 @@
-2breality2
+2BGit
 ==========
 
-2breality2
+http://www.2breality.com/2BGit.html
 
